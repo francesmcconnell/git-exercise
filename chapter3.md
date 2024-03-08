@@ -1,8 +1,8 @@
-# Chapter 3
+# Squeaky Being Annoying
 
 
-The campaign trail was filled with many more surreal moments, such as a televised cooking competition where Kelly and Squeaky faced off in a battle to create the best acorn-inspired dish. Squeaky's acorn soufflé garnered rave reviews from the judges, while Kelly's acorn-crusted salmon fell flat with the audience.
+As the campaign kicked into high gear, Justina and Squeaky found themselves facing off in a series of debates that ranged from the economy to foreign policy. It was a surreal sight to see a human and a squirrel debating the finer points of healthcare reform and tax policy, but somehow, they managed to keep a straight face and carry on with the serious business of running for president.
 
-Despite the odds stacked against her, Kelly refused to back down and continued to campaign tirelessly, crisscrossing the country in a whirlwind of rallies and stump speeches. Her perseverance and determination caught the attention of voters who were drawn to her sincerity and dedication to serving the people.
+One of the most memorable moments of the campaign came during a town hall event in a small rural town in Iowa. Justina was giving a passionate speech about the importance of education and affordable healthcare when suddenly, Squeaky interrupted her by jumping onto the podium and declaring that he would make acorns a form of currency if elected.
 
-As election day drew near, the polls showed a neck-and-neck race between Kelly and Squeaky, with many pundits predicting a historic upset in the making. 
+As election day drew near, the polls showed a neck-and-neck race between Justina and Squeaky, with many pundits predicting a historic upset in the making. 

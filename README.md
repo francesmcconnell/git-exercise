@@ -2,7 +2,7 @@
 
 # Kelly vs. Squirrel   ← (replace this with your title)
 
-- [Chapter 1](chapter1.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 4](chapter4.md)
+- [Kelly's Downfall To Squeaky](chapter1.md)
+- [Squeaky Being Annoying](chapter2.md)
+- [Kelly & Squeaky's Battle](chapter3.md)
+- [Squirrel Took an L](chapter4.md)
