@@ -1,4 +1,4 @@
-# Chapter 4
+# Squirrel Took an L
 
 
 In the end, it was Justina who emerged victorious, narrowly edging out Squeaky in a hotly contested race that will surely go down in history as one of the most unusual presidential campaigns of all time. As she took the oath of office, surrounded by her family and supporters, Justina couldn't help but marvel at the strange and unpredictable journey that had led her to the highest office in the land.

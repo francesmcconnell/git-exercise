@@ -1,4 +1,4 @@
-# Chapter 1
+# Kelly's Downfall To Squeaky
 
 It was a bizarre turn of events in the political world when Justina, a seemingly average human being, found herself running against a squirrel for the 2024 presidential race. The entire country was abuzz with disbelief and confusion, wondering how a small woodland creature could possibly be a serious contender for the highest office in the land.
 
