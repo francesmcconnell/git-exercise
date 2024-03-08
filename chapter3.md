@@ -1,4 +1,4 @@
-# Chapter 2
+# Kelly & Squeaky's Battle
 
 
 As the campaign kicked into high gear, Kelly and Squeaky found themselves facing off in a series of debates that ranged from the economy to foreign policy. It was a surreal sight to see a human and a squirrel debating the finer points of healthcare reform and tax policy, but somehow, they managed to keep a straight face and carry on with the serious business of running for president.

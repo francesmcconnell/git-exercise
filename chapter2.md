@@ -1,4 +1,4 @@
-# Chapter 3
+# Squeaky Being Annoying
 
 
 The campaign trail was filled with many more surreal moments, such as a televised cooking competition where Kelly and Squeaky faced off in a battle to create the best acorn-inspired dish. Squeaky's acorn soufflé garnered rave reviews from the judges, while Kelly's acorn-crusted salmon fell flat with the audience.
